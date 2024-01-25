@@ -1,2 +1,2 @@
 # Joyeria-online
-Prueba de repositorio
+El equipo de desarrollo X dara que se implementara y como se dara. lol xd
